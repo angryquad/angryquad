@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @angryquad, 36 years old, 16 years in an wheelchair, yep i'm quadriplegic.
-- 👀 I’m interested in tecnolgy to help disabled peoples around the world.
+- 👀 I’m interested in tecnology to help disabled peoples around the world.
 - 🌱 I’m currently learning social policy.
 
 <!---
